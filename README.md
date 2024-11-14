@@ -10,6 +10,10 @@
 
 ## LINK PARA VÍDEO PEDIDO: https://youtu.be/CSaMMXWAiiE
 
+## Conexões feitas no sistema:
+![image](https://github.com/user-attachments/assets/882f272b-09a3-4b62-a856-a0faa4e4c63a)
+
+
 ## BMH
 
 ## 👨‍🎓 Integrantes: 
